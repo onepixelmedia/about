@@ -40,6 +40,6 @@ https://onepixelmediawebdesign.wordpress.com/
 
 https://about.me/onepixelmedia/
 
-bit.ly/onepixelmedia
+https://bit.ly/onepixelmedia
 
 https://bit.ly/m/onepixelmedia
