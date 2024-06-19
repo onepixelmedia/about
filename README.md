@@ -1,4 +1,4 @@
-# One Pixel Media - Web Development & Search Engine Marketing Company
+# One Pixel Media - Web Development, Influencer Marketing & SEO Agency
 
 Grow Your Business with Custom Web Design, Web Development & SEO service. We can help you with our Web Design, Custom Web Development, Logo Design, Branding and SEO, and Internet Marketing Services. Boost your business with One Pixel Media
 
